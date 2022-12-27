@@ -1,5 +1,3 @@
-### Hi there 👋
-
 i don't know
 ¯\_(ツ)_/¯
 
